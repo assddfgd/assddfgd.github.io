@@ -1,52 +1,8 @@
-# assddfgd.github.io
+# TG必备的纸飞机搜索引擎，怎么加万能资源群
 TG必备的纸飞机搜索引擎，怎么加万能资源群
 
 
 
-<!DOCTYPE html>
-<meta name="google-site-verification" content="VTg4zbHcPeAVU7QNv-LSivrWehGML2gQI0QxTJlDaCM" />
-<html lang="en-US">
-  <head>
-    <meta charset="UTF-8">
-    <meta http-equiv="X-UA-Compatible" content="IE=edge">
-    <meta name="viewport" content="width=device-width, initial-scale=1">
-
-<!-- Begin Jekyll SEO tag v2.8.0 -->
-<title>纸飞机资源纸飞机上面怎么找资源群，好看的频道推荐一下</title>
-<meta name="generator" content="Jekyll v3.10.0" />
-<meta property="og:title" content="纸飞机资源" />
-<meta property="og:locale" content="en_US" />
-<meta name="description" content="纸飞机资源纸飞机上面怎么找资源群，好看的频道推荐一下" />
-<meta property="og:description" content="纸飞机资源纸飞机上面怎么找资源群，好看的频道推荐一下" />
-<link rel="canonical" href="https://assddee45.github.io/" />
-<meta property="og:url" content="https://assddee45.github.io/" />
-<meta property="og:site_name" content="纸飞机资源" />
-<meta property="og:type" content="website" />
-<meta name="twitter:card" content="summary" />
-<meta property="twitter:title" content="纸飞机资源" />
-<script type="application/ld+json">
-{"@context":"https://assddee45.github.io/","@type":"WebSite","description":"纸飞机资源纸飞机上面怎么找资源群，好看的频道推荐一下","headline":"纸飞机资源","name":"纸飞机资源","url":"https://assddee45.github.io/"}</script>
-<!-- End Jekyll SEO tag -->
-
-    <link rel="stylesheet" href="/assets/css/style.css?v=24383c0f548d971b30beaa3a200a393789aabd70">
-    <!-- start custom head snippets, customize with your own _includes/head-custom.html file -->
-
-<!-- Setup Google Analytics -->
-
-
-
-<!-- You can set your favicon here -->
-<!-- link rel="shortcut icon" type="image/x-icon" href="/favicon.ico" -->
-
-<!-- end custom head snippets -->
-
-  </head>
-  <body>
-    <div class="container-lg px-3 my-5 markdown-body">
-      
-      <h1><a href="https://assddee45.github.io/">纸飞机资源</a></h1>
-      
-<h4 style="text-align: left;"><span style="font-family: georgia;">
   <b>纸飞机上怎么找资源群，首先要科学上网，再就是你需要下载纸飞机，也就是Telegram，然后就是找资源频道，在纸飞机上可以看你想要的一切资源，还可以找美女出击，今天给大家推荐可靠的资源。</p>
     首先下载telegram,不会下载往下看，科学上网是必要的</p>
 下载后打开纸飞机右上角放大镜搜：kdkdy68</b></p>
